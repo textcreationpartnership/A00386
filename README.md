@@ -36,11 +36,23 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The paraphrase of Erasm[us] Roterdame vpon [the] epistle of sai[n]t Paule vnto his discyple Titus la
+〈2… pages missing〉uered his olde bryghtnes / & shyneth so abrode now / yt euen they whose inwarde ey
 #####Body#####
 
+1. The Epistle of Paule vnto Tytus.
+PAule the seruante of God and an Apostle of Ihesu Chryste: to preache the faythe of goddes electe / 
+    _ The seconde chapytre.
+
+    _ The thyrde chapytre
+
+1. Here begȳneth the Paraphrase of Erasmus of Roterdame vpō saint Paules Epse to his dyscyple Tytus.
+I PAule my selfe the sworne seruant and obeyer / not of Moyses lawe as I was ones / but of the law o
+    _ The second chapyter.
+
+    _ The thyrde chapyter.
+
 #####Back#####
-The paraphrase of Erasm[us] Roterdame vpon [the] epistle of sai[n]t Paule vnto his discyple Titus la
+Imprented by Iohn̄ Byddell in London in Fletestrete next to the Flete BrydgeTranslated by Leonard Co
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
